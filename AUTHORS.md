@@ -11,3 +11,6 @@
 - Romain Cabaret, RomainCabaret, romainc.cabaret@gmail.com
 - Melina BELHABIB, MelinaBelh, belhabibmelina@gmail.com
 - Leticia Zaid, lettyz3, leticia.zaid.lz@gmail.com
+- Samy Ferhat, samyferhat, ferhatsamy26@gmail.com
+- Mohamed RAHMANI, mohamed-rahmani, mohamed.rahmani.ma@gmail.com
+- Adam HADJEB, AdamHdjb, adamhdu77127@gmail.com
